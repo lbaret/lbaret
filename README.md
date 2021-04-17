@@ -14,7 +14,7 @@ d’**exprimer ma création** et ma **volonté d’innover** 🎯.
 📆 - Je travaille en ce moment même dans la construction et la mise en place d‘un [**stream**](https://www.twitch.tv/lobiten) 🎥 
 ayant pour sujet principal le **Machine Learning**.
 
-📫 - N’hésite pas à me contacter et venir partager avec moi !
+📫 - N’hésite pas à me contacter et à venir échanger avec moi !
 
 ---
 *English*
