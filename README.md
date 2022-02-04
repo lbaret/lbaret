@@ -34,4 +34,4 @@ with **Machine Learning** as major theme.
 ---
 
 - [Linkedin](https://www.linkedin.com/in/lo%C3%AFc-baret-10/) 💻
-- Mail ✉ : b.loic38@laposte.net
+- Mail ✉ : baret.loic.1@gmail.com
